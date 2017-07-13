@@ -1,0 +1,1 @@
+Day 3 and I feel like last week's break from class didn't happen.  I'm falling behind on the reading and so the lecture material is new to me everytime I hear it.  Events outside the classroom environment have finally been addressed, but their effect on my academic progress is still being felt.  Next week will be better, I hope.
